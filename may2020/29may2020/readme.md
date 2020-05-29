@@ -1,4 +1,4 @@
-Belajar ilmu melukis:
+Belajar ilmu melukis:(https://www.youtube.com/watch?v=QGUidQQlIGQ)
 
 1.Mangkuk
 

@@ -1,4 +1,4 @@
        SURAH
        
-Al-Baqarah Ayat 58-69
+Al-Baqarah Ayat 58-78
         ()

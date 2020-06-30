@@ -1,1 +1,3 @@
-
+    SURAH AL BAQARAH
+    
+Ayat 106-112()

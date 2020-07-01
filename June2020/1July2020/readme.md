@@ -1,3 +1,3 @@
        SURAH AL BAQARAH
    
- Ayat 113-119()
+ Ayat 113-119(https://youtu.be/tBNKP13NzMs)

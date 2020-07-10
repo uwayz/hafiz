@@ -2,7 +2,7 @@
         
       Al Baqarah
 
-Ayat 125-129()
+Ayat 125-129(https://youtu.be/un7wdS95IzY)
 
     HADIS-HADIS NABI
    
